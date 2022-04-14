@@ -8,6 +8,8 @@ The winner gets their answer to the question read on The Llamas Report.
 To play, post the answer to the question in ##llamas along with a number between 0 and 200.
 
 ## Archive
+- 04/12/2022 https://vocaroo.com/13GXZvuwEOcm
+    - Ukraine, Life, Gilbert Gottfried Eulogy
 - 04/10/2022 https://vocaroo.com/1iD5FjXiFLGK
     - France, Oscars, Ukraine
 - 08/22/2021 https://vocaroo.com/14yYcUxlSPEs
